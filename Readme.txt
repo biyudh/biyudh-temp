@@ -1,4 +1,5 @@
 Thanks for visiting!
+biyudhlama.com.np
 
 I used this template check out this.
 Template Name: iPortfolio
